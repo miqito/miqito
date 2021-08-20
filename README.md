@@ -1,4 +1,4 @@
-<img src="https://cdn.discordapp.com/attachments/870060239288950834/877824076704522310/header.png" />
+<img src="https://cdn.discordapp.com/attachments/870060239288950834/878334068125728798/header2.png" />
 Maicon de Oliveira  |  23 Anos(1998)  |  Teresópolis-RJ 🇧🇷   |  Português Brasileiro, English  |  Bi  |  
 
 ##
