@@ -44,7 +44,7 @@ Maicon de Oliveira  |  23 Anos(1998)  |  Teresópolis-RJ 🇧🇷   |  Portuguê
 
 ##
 
-### **Já que está aqui, siga minhas playlists no** <a href=""><img src="https://img.shields.io/badge/Spotify-1ED760?&style=for-the-badge&logo=spotify&logoColor=white" /></a> ❤:
+### **Já que está aqui, siga minhas playlists no** <a href="https://open.spotify.com/user/maiconcrvg21?si=bd6d7b14e76c4062"><img src="https://img.shields.io/badge/Spotify-1ED760?&style=for-the-badge&logo=spotify&logoColor=white" /></a> ❤:
 
   
 
