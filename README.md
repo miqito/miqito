@@ -1,5 +1,5 @@
 <img src="https://cdn.discordapp.com/attachments/870060239288950834/878408464601342012/banner.gif" />
-Maicon de Oliveira  |  23 Anos(1998)  |  Teresópolis-RJ 🇧🇷   |  Português Brasileiro, English  |  Bi  |  
+Maicon de Oliveira  |  23 Anos(1998)  |  Teresópolis-RJ 🇧🇷   |  Português Brasileiro, English   
 
 ##
 
